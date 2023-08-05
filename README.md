@@ -1,3 +1,6 @@
+https://github.com/HUFS-Capstone-23-01/TravelFeelDog-Server/files/12265925/18_HUFSummer._.pdf
+
+
 ## 팀 초록 깡통
 
 ### 벡엔드 서버 저장소
