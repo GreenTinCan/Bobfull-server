@@ -1,4 +1,5 @@
-https://github.com/HUFS-Capstone-23-01/TravelFeelDog-Server/files/12265925/18_HUFSummer._.pdf
+<img width="597" alt="Awards" src="https://github.com/GreenTinCan/Bobfull-server/assets/37647483/a0f19df0-6032-49d3-b7b8-268c3e562149">
+
 
 
 ## 팀 초록 깡통
